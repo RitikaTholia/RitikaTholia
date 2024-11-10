@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **ritikatholia2005@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: https://www.linkedin.com/in/ritika-tholia-386711287 </h3>
 <p align="left">
 </p>
 
